@@ -1,5 +1,5 @@
 ### Hi there 👋 
-This is me Pratikshit if you know me then it's great if not connect with me on linkedin.
+This is me Pratikshit if you know me then it's great if not connect with me on<a href="linkedin.com/in/pratikshit-chaturvedi-968661170/"> linkedin</a>
 
 - 🔭 I’m currently working on DSA and Web Development
 - 🌱 I’m currently learning php
