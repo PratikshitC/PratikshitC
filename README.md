@@ -8,5 +8,5 @@ This is me Pratikshit if you know me then it's great if not connect with me on l
 - 💬 Ask me about anything  .
 - 📫 How to reach me:Don't think twice Come and meet me directly.
 - 😄 Pronouns:his + her
-- ⚡ Fun fact: I am madarchod
+- ⚡ Fun fact: I am a comedian
 
